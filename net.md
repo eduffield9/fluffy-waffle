@@ -7,7 +7,8 @@ ui daggerscoreuidaggersocreoi nio234 noi 234 ioi no2 3oi4 net oi2 3o4o2 oo p234
 ah org netoi 23n4 io234 
 ha
 
-aja
+aja![125725](https://github.com/eduffield9/fluffy-waffle/assets/152788646/d675c89b-b6b0-4359-b169-367cad63e2b3)
+
 
 ajj
   234pom 2o3o234 ero ij io23o 4i o 2no nio2 onnio 2no34oi o23i4 io io23 io4
